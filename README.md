@@ -10,3 +10,6 @@ http://15599280416.lanzoui.com/b03mdrfja
 https://github.com/getlantern/download
 
 https://github.com/getlantern/lantern
+
+本页面内容为成年人内容
+如果介意的不要下载
